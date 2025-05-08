@@ -1,6 +1,6 @@
 ## Hi there I'm Shariar Joy
 
-🧠​ Computer science and design student at Independent University, Bangladesh
+🧠​ Computer science at Independent University, Bangladesh
 ​🎥 Feel free to reach out to me through social media or for a chat! [Instagram]([https://www.instagram.com/b.telgeuse/](https://www.instagram.com/_shariar_joy/)](https://www.instagram.com/_shariar_joy/)), [Linkdin]([https://www.tiktok.com/@b.telgeuse18](https://www.linkedin.com/in/shariar-joy-9a23b627a/))
 
 ## Tech Stack 👩‍💻
